@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on whatever i can! i'm not the best at everything, but i can definitely learn!
 - 📫 How to reach me : through my email (Yeetsymaximus@gmail.com) or through any website that has my handle!
 - 😄 Pronouns: She/her!
-- ⚡ Fun fact: I'm a Trans, lesbian software dev (as if there weren't several already)!
+- ⚡ Fun fact: I'm a Queer, Tran & Lesbian Software Dev (as if there weren't several already)!
 
 <!---
 Yeetsymaximus/Yeetsymaximus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
